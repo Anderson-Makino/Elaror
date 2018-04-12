@@ -30,8 +30,18 @@ Em pura felicidade os humanos começaram a criar obras mais belas ainda, alegran
 ## _Capítulo 2: A Separação_
 
 A alegria e paz daquele mundo se expandia a cada dia, fazendo vários deuses notarem a presença de tal harmonia. Pelor foi o primeiro a se manifestar lá, trazendo sua luz e vida. Humanos se maravilharam por tudo que ele era, e agora veneravam ele, suas musicas elevavam o sol, vangloriavam a vida daquele lugar e daclaravam ele ser dono da luz e vida daquele planeta. Isso obviamente não passou despercebido a
-Tarizdun.
+Dielik.
 
-> A chegada de Tarizdun foi como uma vela que queima forte e se apaga derrepente, a desconfiância e ganância tomou conta de Elaror quase de imediato. A guerra foi longa, e muitos foram os danos. Não existiam mais os lindos mares cheios de vida. Só um deserto morto e cruel.
+> A chegada de Dielik foi como uma vela que queima forte e se apaga derrepente, a desconfiância e ganância tomou conta de Elaror quase de imediato. A guerra foi longa, e muitos foram os danos. Não existiam mais os lindos mares cheios de vida. Só um deserto morto e cruel.
 >
-> _**Richard** - Camponês que trabalha parto do deserto sul_
+> _**Richard** - Capitão da guarda da Costa De Ferro_
+
+Desejando destruir a alegria de seu arquinimigo, Dielik vai a Elaror e sussura ao ouvido de um elemental que se divertia criando um deserto. Ele ensina o elemental a o Bem e o Mal, ele tira a incência do coranção da criatura, e por fim a faz ganânciosa. Inconsiente do que acabara de acontecer, o elemental parte e ataca por trás de seu melhor amigo, o mata e absorve seus poderes, tornando-se o mais forte elemental. Um a um ele consome seus companheiros em uma sede insaciável por poder. Quando os dragões e humanos veem o que está acontecendo já é tarde demais.
+
+Dielik move para os dragões e sussura que a culpa é toda dos humanos, que cantaram para o elemental que ele poderia ser o maior, tirou o pouco amor que restava nos dragões, e por fim colocou o preconceito nos coração dos dragões. Quando os dragões atacaram os humanos foi uma devastação total, poucos restaram. E em meio a queda dos humanos Dielik falou ao coração deles que todos querem oprimir os huamanos, que danças,musicas e conversas não ganhavam gerra e acabou tirando a alegria dos humanos. 
+
+> A primeira guerra entre raças, relatada no mais antigo manuscrito em minha coleção é dos Tempos Antigos, muito antes das primeiras armas serem criadas, naquele tempo somente magias eram usadas como arma, era um tempo que o conhecimento de magia era maior que o atual. [...] Quase todo o conhecimento que tinham foi perdido naquela guerra. [...] Os dragões não conseguiam dizimar os humanos, e os humanos não conseguiam para os dragões, foi necessária intervenção de um terceiro.
+>
+> _Passagem retirada de: **Estratégias de guerra Volume I; Tumkaresh; 529 AR**_
+
+Em meio ao caos e à destruição Elaror, humanos nasciam e morriam em guerra, dragões pilhavam cada vez mais conhecimentos de como matar, e os elementais eram agora poucos e se escondiam do maior deles. Dielik se deleitava com sua obra, a cada dia que passava mais forte ficava por seu domínio se espalhar.
