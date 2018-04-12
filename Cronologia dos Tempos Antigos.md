@@ -38,8 +38,13 @@ Desejando destruir a alegria de seu arquiinimigo, Dielik vai a Elaror e sussurra
 
 Dielik move para os dragões e sussurra que a culpa é toda dos humanos, que cantaram para o elemental que ele poderia ser o maior, tirou o pouco amor que restava nos dragões, e por fim colocou o preconceito nos corações dos dragões. Quando os dragões atacaram os humanos foi uma devastação total, poucos restaram. E em meio a queda dos humanos Dielik falou ao coração deles que todos querem oprimir os humanos, que danças, músicas e conversas não ganhavam guerra e acabou tirando a alegria dos humanos.
 
-> A primeira guerra entre raças, relatada no mais antigo manuscrito em minha coleção é dos Tempos Antigos, muito antes das primeiras armas serem criadas, naquele tempo somente magias eram usadas como arma, era um tempo que o conhecimento de magia era maior que o atual. [...] Quase todo o conhecimento que tinham foi perdido naquela guerra. [...] Os dragões não conseguiam dizimar os humanos, e os humanos não conseguiam para os dragões, foi necessária intervenção de um terceiro.
+> A primeira guerra entre raças, relatada no mais antigo manuscrito em minha coleção é dos Tempos Antigos, muito antes das primeiras armas serem criadas, naquele tempo somente magias eram usadas como arma, era um tempo que o conhecimento de magia era maior que o atual. [...] Quase todo o conhecimento que tinham foi perdido naquela guerra. [...] Os dragões não conseguiam dizimar os humanos, e os humanos não conseguiam parar os dragões. A guerra parecia não ter fim.
 >
 > _Passagem retirada de **Estratégias de guerra Volume I; Tumkaresh; 529 AR**_
 
-Em meio ao caos e à destruição Elaror, humanos nasciam e morriam em guerra, dragões pilhavam cada vez mais conhecimentos de como matar, e os elementais eram agora poucos e se escondiam do maior deles. Dielik se deleitava com sua obra, a cada dia que passava mais forte ficava por seu domínio se espalhar.
+Em meio ao caos e à destruição Elaror, humanos nasciam e morriam em guerra, dragões pilhavam cada vez mais conhecimentos de como matar, e os elementais eram agora poucos e se escondiam do maior deles. Dielik se deleitava com sua obra, a cada dia que passava mais forte ficava por seu domínio se espalhar. Pelor estava arrasado, não podia mais tocar nasquele mundo pois Dielik estava muito forte. Então só pode chorar sobre Elaror, demonstrando sua tristeza e sua dor. Sua força ficara tão fraca que o próprio sol não apareceu mais.
+
+> O céus tremiam, pareciam estar prestes a cair, as montanhas chaqualhavam, os rios inundavam, as plantas morriam. Tudo isso aconteceu no primeiro dia sem o sol.
+>
+> _**Tradução de gravuras encontrads em Pedra Alta**_
+
