@@ -13,7 +13,7 @@ De início existiam três raças, os Sábios dragões, os Poderosos elementais, 
 > Os dragões foram os criadores da primeira Lei Dos Vivos, seu idealizador, Kul'Shac, desejava unir todas raças em uma só, tornando todos um só. Por isso todo tratado de paz começa com:
 > _"Referente a primeira Lei Dos Vivos, "Todos tem o direito de viver", faremos o seguinte acordo de paz._
 >
-> **Trecho retirado de: Uma história das leis; Kelvin de Torre Vermelha; 513 A.R**
+> _Trecho retirado de: **As Leis das leis; Kelvin de Torre Vermelha; 1047 A.R**_
 
 Em dado momento os dragões e os elementais notaram as proezas dos humanos, suas artes os encataram e criaram como presente a eles os animais, misturas dos elementos com magia. Cada música, dança, ou história que ouviam os faziam imaginar novos seres para conviver com os humanos. Depois eles quiseram criar as plantas, e como presente final os dragões deram um pouco de seu conhecimento e magia, e os elementais concederam a eles um pouco de sua força, e agora podiam ir a lugares frios, podiam nadar e agora os metais se dobrava a sua vontade.
 
@@ -29,5 +29,9 @@ Em pura felicidade os humanos começaram a criar obras mais belas ,ainda, alegra
 
 ## _Capítulo 2: A Separação_
 
-A alegria e paz daquele mundo se expandia a cada dia, 
+A alegria e paz daquele mundo se expandia a cada dia, fazendo vários deuses notarem a presença de tal harmonia. Pelor foi o primeiro a se manifestar lá, trazendo sua luz e vida. Humanos se maravilharam por tudo que ele era, e agora veneravam ele, suas musicas elevavam o sol, vangloriavam a vida daquele lugar e daclaravam ele ser dono da luz e vida daquele planeta. Isso obviamente não passou despercebido a
+Tarizdun.
 
+> A chegada de Tarizdun foi como uma vela que queima forte e se apaga derrepente, a desconfiância e ganância tomou conta de Elaror quase de imediato. A guerra foi longa, e muitos foram os danos. Não existiam mais os lindos mares cheios de vida. Só um deserto morto e cruel.
+>
+> _**Richard** - Camponês que trabalha parto do deserto sul_
