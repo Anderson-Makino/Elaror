@@ -48,3 +48,19 @@ Em meio ao caos e à destruição Elaror, humanos nasciam e morriam em guerra, d
 >
 > _**Tradução de gravuras encontrads em Pedra Alta**_
 
+## _Capítulo 3: A União_
+
+Os tempos eram sombrios, não havia escapatória da guerra, onde corpos de humanos formavam pilhas. Poucos registros sobreviveram aos Anos Escuros, nome dado ao período onde não se tem muitos registros. Os poucos vestígios encontrados são altamente discutidos no meio estudioso, pois as lendas e mitos que se contam daquele tempo condizem em certos aspectos e outros não. Não há sequer uma lenda que seja coerente sobre como chegou ao um fim a guerra. No entanto o achado mais importante da época, um dos unicos registros escritos do tempo, é relatado em um pequeno trecho.
+
+> A escuridão enfim havia consumido tudo que podia dos corações dos homems e dragões. Não havia mais volta do que eles haviam se tornado. Mas, um mago surge do meio deles, ele não toma lados e almadiçoa cada ser vivo que vive e um dia viverá.
+>[...]
+> Depois do Dia Da União nunca mais houve guerra entre as raças, pois a luta era agora contra o tempo de suas vidas.
+>
+> _Trecho retirado de **3º Registro Anos Escuros, página 137.**_
+
+Não é possivel concluir nada, mas todos os textos contidos nesse registro são extramente condizentes aos folclores, mitos e lendas do povo, assim como os outros registros se mostram ser variações deste. Deve ser comentado que em nenhum registro que se tem daquele tempo, muito menos as lendas, falam qualquer coisa dos elementais novamente. O ultimo registro que se tem deles é logo antes da guerra que começous os Anos Escuros.
+
+> O elememetal segurou a neve nas montanhas até todos humanos passarem pelo vale. Depois disso nunca mais o mesmo foi avistado e seu paradeiro continua uma dúvida até agora.
+>
+> _**Tradução de uma tábua encontrada nas ruínas de um templo soterrado**_
+
