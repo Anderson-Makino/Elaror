@@ -68,3 +68,6 @@ Não é possível concluir nada, mas todos os textos contidos neste registro sã
 > O elemental segurou a neve nas montanhas até todos humanos passarem pelo vale. Depois disso nunca mais o mesmo foi avistado e seu paradeiro continua uma dúvida até agora.
 >
 > _**Tradução de uma tábua encontrada nas ruínas de um templo soterrado**_
+
+Após esse periodo as primeiras escrituras relatando a história começam a surgir por volta de mil anos depois com os dragões, e humanos começam por volta de quientos anos depois deles. Eles ralatam feitos de heróis, textos religiosos tambem são abundantes, cada um com um deus diferente. Ainda não se sabe quando começaram a adorar deuses diferentes de Pelor. Os primeiros textos contendo conhecimentos sobre o mundo começam a aparecer por volta de trezentos anos depois disso, relatando os acontecimentos da região imparcialemente, como por exemplo um diário de algum dono de terra falando quais anos tiveram uma grande produção de comida, quais anos foram difíceis, quando um filho nasce, e assim por diante.
+
