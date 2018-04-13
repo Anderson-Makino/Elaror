@@ -1,11 +1,15 @@
-# **A história geral de Elaror**
+# _**Cronologia de Elaror**_
 
-- [**A história geral de Elaror**](#a-hist%C3%B3ria-geral-de-elaror)
-	- [_Capítulo 1: O Nascimento_](#cap%C3%ADtulo-1-o-nascimento)
-	- [_Capítulo 2: A Separação_](#cap%C3%ADtulo-2-a-separa%C3%A7%C3%A3o)
-	- [_Capítulo 3: A União_](#cap%C3%ADtulo-3-a-uni%C3%A3o)
+- [_**Cronologia de Elaror**_](#cronologia-de-elaror)
+	- [**Os Tempos Antigos**](#os-tempos-antigos)
+		- [_Capítulo 1: O Nascimento_](#cap%C3%ADtulo-1-o-nascimento)
+		- [_Capítulo 2: A Separação_](#cap%C3%ADtulo-2-a-separa%C3%A7%C3%A3o)
+		- [_Capítulo 3: A União_](#cap%C3%ADtulo-3-a-uni%C3%A3o)
+	- [**As Guerras ?**](#as-guerras)
 
-## _Capítulo 1: O Nascimento_
+## **Os Tempos Antigos**
+
+### _Capítulo 1: O Nascimento_
 
 Um deus em seu processo de ascensão fez uma escolha inusitada. Desistiu de aumentar seu poder e usou tudo que tinha para permitir que a vida surgisse em um mundo vazio. Ele queria lembrar o que foi alguma vez ter vivido, sentido algo, e com isso sacrificou seus poderes, mergulhando completamente naquele mundo.
 
@@ -31,7 +35,7 @@ Em pura felicidade os humanos começaram a criar obras mais belas ainda, alegran
 >
 > _**Ylthre** - gerente do Observatório de Aldane_
 
-## _Capítulo 2: A Separação_
+### _Capítulo 2: A Separação_
 
 A alegria e paz daquele mundo se expandia a cada dia, fazendo vários deuses notarem a presença de tal harmonia. Pelor foi o primeiro a se manifestar lá, trazendo sua luz e vida. Humanos se maravilharam por tudo que ele era, e agora veneravam ele, suas músicas elevavam o sol, vangloriava a vida daquele lugar e declarava ele ser dono da luz e vida daquele planeta. Isso obviamente não passou despercebido a Dielik.
 
@@ -53,7 +57,7 @@ Em meio ao caos e à destruição Elaror, humanos nasciam e morriam em guerra, d
 >
 > _**Tradução de gravuras encontradas em Pedra Alta**_
 
-## _Capítulo 3: A União_
+### _Capítulo 3: A União_
 
 Os tempos eram sombrios, não havia escapatória da guerra, onde corpos de humanos formavam pilhas. Poucos registros sobreviveram aos Anos Escuros, nome dado ao período onde não se tem muitos registros. Os poucos vestígios encontrados são altamente discutidos no meio estudioso, pois as lendas e mitos que se contam daquele tempo condizem em certos aspectos e outros não. Não há sequer uma lenda que seja coerente sobre como ela chegou ao um fim. No entanto o achado mais importante da época, um dos únicos registros escritos do tempo, é relatado em um pequeno trecho.
 
@@ -71,3 +75,6 @@ Não é possível concluir nada, mas todos os textos contidos neste registro sã
 
 Após esse periodo as primeiras escrituras relatando a história começam a surgir por volta de mil anos depois com os dragões, e humanos começam por volta de quientos anos depois deles. Eles ralatam feitos de heróis, textos religiosos tambem são abundantes, cada um com um deus diferente. Ainda não se sabe quando começaram a adorar deuses diferentes de Pelor. Os primeiros textos contendo conhecimentos sobre o mundo começam a aparecer por volta de trezentos anos depois disso, relatando os acontecimentos da região imparcialemente, como por exemplo um diário de algum dono de terra falando quais anos tiveram uma grande produção de comida, quais anos foram difíceis, quando um filho nasce, e assim por diante.
 
+---
+
+## **As Guerras ?**
