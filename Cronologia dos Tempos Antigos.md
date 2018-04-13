@@ -47,24 +47,24 @@ Dielik move para os dragões e sussurra que a culpa é toda dos humanos, que can
 >
 > _Passagem retirada de **Estratégias de guerra Volume I; Tumkaresh; 529 AR**_
 
-Em meio ao caos e à destruição Elaror, humanos nasciam e morriam em guerra, dragões pilhavam cada vez mais conhecimentos de como matar, e os elementais eram agora poucos e se escondiam do maior deles. Dielik se deleitava com sua obra, a cada dia que passava mais forte ficava por seu domínio se espalhar. Pelor estava arrasado, não podia mais tocar nasquele mundo pois Dielik estava muito forte. Então só pode chorar sobre Elaror, demonstrando sua tristeza e sua dor. Sua força ficara tão fraca que o próprio sol não apareceu mais.
+Em meio ao caos e à destruição Elaror, humanos nasciam e morriam em guerra, dragões pilhavam cada vez mais conhecimentos de como matar, e os elementais eram agora poucos e se escondiam do maior deles. Dielik se deleitava com sua obra, a cada dia que passava mais forte ficava por seu domínio se espalhar. Pelor estava arrasado, não podia mais tocar naquele mundo pois Dielik estava muito forte. Então só pode chorar sobre Elaror, demonstrando sua tristeza e sua dor. Sua força ficara tão fraca que o próprio sol não apareceu mais.
 
-> O céus tremiam, pareciam estar prestes a cair, as montanhas chaqualhavam, os rios inundavam, as plantas morriam. Tudo isso aconteceu no primeiro dia sem o sol.
+> Os céus tremiam, pareciam estar prestes a cair, as montanhas chacoalharam, os rios inundavam e as plantas morriam. Tudo isso aconteceu no primeiro dia sem o sol.
 >
-> _**Tradução de gravuras encontrads em Pedra Alta**_
+> _**Tradução de gravuras encontradas em Pedra Alta**_
 
 ## _Capítulo 3: A União_
 
-Os tempos eram sombrios, não havia escapatória da guerra, onde corpos de humanos formavam pilhas. Poucos registros sobreviveram aos Anos Escuros, nome dado ao período onde não se tem muitos registros. Os poucos vestígios encontrados são altamente discutidos no meio estudioso, pois as lendas e mitos que se contam daquele tempo condizem em certos aspectos e outros não. Não há sequer uma lenda que seja coerente sobre como chegou ao um fim a guerra. No entanto o achado mais importante da época, um dos unicos registros escritos do tempo, é relatado em um pequeno trecho.
+Os tempos eram sombrios, não havia escapatória da guerra, onde corpos de humanos formavam pilhas. Poucos registros sobreviveram aos Anos Escuros, nome dado ao período onde não se tem muitos registros. Os poucos vestígios encontrados são altamente discutidos no meio estudioso, pois as lendas e mitos que se contam daquele tempo condizem em certos aspectos e outros não. Não há sequer uma lenda que seja coerente sobre como ela chegou ao um fim. No entanto o achado mais importante da época, um dos únicos registros escritos do tempo, é relatado em um pequeno trecho.
 
-> A escuridão enfim havia consumido tudo que podia dos corações dos homems e dragões. Não havia mais volta do que eles haviam se tornado. Mas, um mago surge do meio deles, ele não toma lados e almadiçoa cada ser vivo que vive e um dia viverá.
+> A escuridão enfim havia consumido tudo que podia dos corações dos homens e dragões. Não havia mais volta do que eles haviam se tornado. Mas, um mago surge do meio deles, ele não toma lados e amaldiçoa cada ser vivo que vive e um dia viverá.
 >[...]
 > Depois do Dia Da União nunca mais houve guerra entre as raças, pois a luta era agora contra o tempo de suas vidas.
 >
 > _Trecho retirado de **3º Registro Anos Escuros, página 137.**_
 
-Não é possivel concluir nada, mas todos os textos contidos nesse registro são extramente condizentes aos folclores, mitos e lendas do povo, assim como os outros registros se mostram ser variações deste. Deve ser comentado que em nenhum registro que se tem daquele tempo, muito menos as lendas, falam qualquer coisa dos elementais novamente. O ultimo registro que se tem deles é logo antes da guerra que começous os Anos Escuros.
+Não é possível concluir nada, mas todos os textos contidos neste registro são extremamente condizentes aos folclores, mitos e lendas do povo, assim como os outros registros se mostram ser variações deste. Deve ser comentado que em nenhum registro que se tem daquele tempo, muito menos as lendas, falam qualquer coisa dos elementais novamente. O último registro que se tem deles é logo antes da guerra que marca o início os Anos Escuros.
 
-> O elememetal segurou a neve nas montanhas até todos humanos passarem pelo vale. Depois disso nunca mais o mesmo foi avistado e seu paradeiro continua uma dúvida até agora.
+> O elemental segurou a neve nas montanhas até todos humanos passarem pelo vale. Depois disso nunca mais o mesmo foi avistado e seu paradeiro continua uma dúvida até agora.
 >
 > _**Tradução de uma tábua encontrada nas ruínas de um templo soterrado**_
