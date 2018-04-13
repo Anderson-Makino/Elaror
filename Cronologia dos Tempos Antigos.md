@@ -1,4 +1,9 @@
-# A história de Elaror
+# **A história geral de Elaror**
+
+- [**A história geral de Elaror**](#a-hist%C3%B3ria-geral-de-elaror)
+	- [_Capítulo 1: O Nascimento_](#cap%C3%ADtulo-1-o-nascimento)
+	- [_Capítulo 2: A Separação_](#cap%C3%ADtulo-2-a-separa%C3%A7%C3%A3o)
+	- [_Capítulo 3: A União_](#cap%C3%ADtulo-3-a-uni%C3%A3o)
 
 ## _Capítulo 1: O Nascimento_
 
@@ -63,4 +68,3 @@ Não é possivel concluir nada, mas todos os textos contidos nesse registro são
 > O elememetal segurou a neve nas montanhas até todos humanos passarem pelo vale. Depois disso nunca mais o mesmo foi avistado e seu paradeiro continua uma dúvida até agora.
 >
 > _**Tradução de uma tábua encontrada nas ruínas de um templo soterrado**_
-
